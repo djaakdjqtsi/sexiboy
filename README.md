@@ -1,1 +1,1 @@
-# S2x m
+# S2x machine
